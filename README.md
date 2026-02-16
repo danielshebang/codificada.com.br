@@ -1,1 +1,0 @@
-# codificada.com.br
